@@ -1,5 +1,5 @@
 # Hi there 👋
-## Sudheendra Prabhu
+## My name is Sudheendra Prabhu
 
 # About me
 ### I'm a Student in SMVITM, Bantakal
